@@ -1,5 +1,4 @@
 # About Me:
-Developer with a focus on creating thoughtful projects and continuously learning. <br>Enjoys exploring new technologies at a steady pace.
 
 
 ## 🌐 Socials:
